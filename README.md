@@ -9,10 +9,10 @@ Não precisas ser amante,
 e nem sempre sabes sê-lo.
 Eu te amo porque te amo.
 Amor é estado de graça
-e com amor não se paga.
+e com amor não se paga.e já é destaque 
 
 Amor é dado de graça,
-é semeado no vento,
+é semeado e já é destaque no vento,
 na cachoeira, no eclipse.
 Amor foge a dicionários
 e a regulamentos vários.
